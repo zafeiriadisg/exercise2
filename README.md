@@ -50,7 +50,7 @@ _The Sound of Silence, is simply a photograph Simon & Garfunkel's 1964 single "T
 
 01:15:40-1:23:40
 
-_One last piece that I wanna focus on in a part this is a plague for a film that is gonna be showing here on Monday - one of my favorites films ever -a film called Leviathan Comes out at the Sensory Ethnography Lab in - based in- Harvard and run by Lucien Castaing Taylor._
+_one of my favorites films ever, a film called Leviathan by Lucien Castaing Taylor._
 
 &nbsp;&nbsp;Κατά τη διάρκεια του αποσπάσματος από την ταινία που παρουσιάζει ο Cox, με εντυπωσίασε ο δυναμικός ρόλος του ήχου στην αφήγηση του έργου. Κατά την γνώμη μου στο συγκεκριμένο έργο βλέπουμε μια απόλυτη ισορροπία μεταξύ ήχου και εικόνας.
 
